@@ -8,7 +8,7 @@ Dem0n - Works on Stitch, and Sparky with FlyCode helps me with a 'lot of shit ch
 
 Simon - Good developer makes banger anticheats 
 
-Dewfs - Makes AGC I mean nothing else but a good developer but ewont allow vaziak become staff on MMC :sob:
+Dewfs - Makes AGC I mean nothing else but a good developer but wont allow vaziak become staff on MMC :sob:
 
 Vaziak - Makes decent clients, can be a dick sometimes but hes a pretty chill guy
 
