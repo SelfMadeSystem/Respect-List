@@ -27,3 +27,5 @@ undersquire - Makes hades decent anticheat nice guy and overall a good person to
 SadNeo - good person to talk to talks a lot of shit but is a funny guy.
 
 MasterDA - good guy to hang out with a chill as person (if you see this master you my dog bro on moms)
+
+OilFlush - decent at making clients and just has fun and is a fun guy to dick around with on servers.
