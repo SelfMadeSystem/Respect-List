@@ -30,4 +30,4 @@ MasterDA - good guy to hang out with a chill as person (if you see this master y
 
 OilFlush - decent at making clients and just has fun and is a fun guy to dick around with on servers.
 
-Failingclasses - Decent guy, is slowly learning java is a fat skid for potpvp <3 love you no homo sorrrrrrrrrry
+failingclasses - Decent guy is learning java and is fun to play overwatch with owns a network pretty funny guy but is fat love you <3 no homo
