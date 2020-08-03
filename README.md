@@ -1,33 +1,48 @@
 # Respect-List
 
-OilSlug - Decent anticheat developer, has a 'lot to learn but is all around a nice guy and helps me with shit.
+Simon - Good developer makes banger anticheats, loves to criticize others code but it's actually really helpful. 8/10
 
-FlyCode - Great developer makes Sparky, and Stitch (PS: Go buy sparky now fags) anyways good guy nice friend and a pretty chill person
+Dewfs - Makes AGC I mean nothing else but a good developer but wont allow vaziak become staff on MMC :sob: dog/10
 
-Dem0n - Works on Stitch, and Sparky with FlyCode helps me with a 'lot of shit chill guy and is a good anticheat developer.
+Vaziak - Makes decent clients, can be a dick sometimes but hes a pretty chill guy. Proud member of the Artemis Leaking Mafia. 7.5/10
 
-Simon - Good developer makes banger anticheats 
+Elevated - Insane anticheat developer helps anyone that needs help, and even gives ideas towards how to make checks. All around a nice guy.. 9 3/4 floors/10
 
-Dewfs - Makes AGC I mean nothing else but a good developer but wont allow vaziak become staff on MMC :sob:
+Mexify - Is annoying but is chill and a nice kid all around, likes to help out with shitting on random things even tho he knows nothing abt them. 6.9/10
 
-Vaziak - Makes decent clients, can be a dick sometimes but hes a pretty chill guy
+BVFDora - chad minecraft anticheat manager. 8/10
 
-Elevated - Insane anticheat developer helps anyone that needs help, and even gives ideas towards how to make checks. All around a nice guy..
+undersquire - Makes hades decent anticheat nice guy and overall a good person to talk to. Inspired by Jonhan. You Suck At Anticheats/10.
 
-_Real - learned how to actually code, and is a pretty nice guy.
+retrooper - Codes PacketEvents API, sim0n got on his ass and now he's improving it, respect the grind, codes on his phone too. 10/10
 
-Mexify - Is annoying but is chill and a nice kid all around
+Ghast - Thought he was a skidder, maybe he is, but he's pretty chill. Artemis/10.
 
-BVFDora - Is a dick but I mean he has his moments of being a chill guy might aswell add him here cause hes a pretty chill guy sometimes.
+frep - Makes the best free anticheat Spigot has ever seen, codes on janitors shitty base. Respect. 9/10
 
-C0an - Good developer when you need HCF Plugins, Core, or anything chill person over all and very nice developer.
+Tecnio - develops Cypher with me, pretty chill and fun to talk to. 9/10.
 
-undersquire - Makes hades decent anticheat nice guy and overall a good person to talk to.
+pirro - raped Lunas movement checks BUT ONLY BC I FORGOT TO REGISTER ONE. highjump & glide/10
 
-SadNeo - good person to talk to talks a lot of shit but is a funny guy.
+funkemunky - makes cool streams to watch except READ UR MF DMS next time you make a phase check please ;-; me and toon trying to get ur attention/10
 
-MasterDA - good guy to hang out with a chill as person (if you see this master you my dog bro on moms)
+TheWoosh - I had CheckResult in my anticheat one time and people think Luna is a WAC skid :( 5/10
 
-OilFlush - decent at making clients and just has fun and is a fun guy to dick around with on servers.
+Jonhan - Makes a lot of cool public checks except they aren't finished/proper so everyone skidding them has poop check. 9/10
 
-failingclasses - Decent guy is learning java and is fun to play overwatch with owns a network pretty funny guy but is fat love you <3 no homo
+ToonBasic - sends me weird memes sometimes - 8/10
+
+Hecate - plays rust so he automatically gets a spot but wtf is going on with paladin 2/10
+
+Islandscout - carries #developer-help in the MAC discord. ALSO THANK YOU SO MUCH FOR MOUSE RECORDING FUNCTION I LOVE YOU NO HOMO 100/10
+
+GladUrBad - gotta have some self-respect sooo 10/10
+
+Tyoke - pretty cool and chill dude and helps with our server 10/10
+
+Laurens - the bane of hawk anticheats movement checks 7/10
+
+
+
+
+
